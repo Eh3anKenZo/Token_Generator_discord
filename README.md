@@ -7,7 +7,7 @@ Password Zip : 123
 5. Congratulations, you were able to create a Discord account for free
 
 
-Tag
+Tag $$$ 
 discord token generator
 free discord token generator
 discord token generator github
